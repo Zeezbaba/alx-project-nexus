@@ -107,7 +107,7 @@ I’m excited to apply everything I’ve learned in real-world scenarios, contri
 
 ### 💡 Let's Connect
 - GitHub: [@Zeezbaba](https://github.com/Zeezbaba)
-- LinkedIn: [Your LinkedIn](https://www.linkedin.com/in/okeleji-azeez-3441a1251)
+- LinkedIn: [Okeleji Azeez](https://www.linkedin.com/in/okeleji-azeez-3441a1251)
 
 ---
 
